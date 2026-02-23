@@ -1,2 +1,0 @@
-# Technologie-Mobilne
-Laboratoria
